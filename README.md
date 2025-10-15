@@ -1,1 +1,1 @@
-# my-learnig-path
+# my-learning-path
